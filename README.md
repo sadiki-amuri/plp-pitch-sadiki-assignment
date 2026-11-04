@@ -1,4 +1,4 @@
-• Slide Title: FreshLink Kenya
+ Slide Title: FreshLink Kenya
 • Subtitle/Tagline: Less waste. More income. Better food.
 • Presenter: Sadiki-Amuri
 • Contact Information: [mastertenskgsadikey@gmail.com]
